@@ -1,4 +1,4 @@
-
+Get ahead in rivals with no-ban rivals Scripts, featuring auto-heal and god mode. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
